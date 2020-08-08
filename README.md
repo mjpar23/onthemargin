@@ -1,3 +1,0 @@
-# onthemargin
-Economics
-
