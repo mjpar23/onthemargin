@@ -1,2 +1,2 @@
 # Gender Equality & Economic Growth
-A repository for potential economic ideas and research topics 
+Women’s empowerment and economic development are closely interrelated
